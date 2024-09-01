@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Janek-122,also known as V0idPr0xy122
+- 👋 Hi, I’m @Janek-122, also known as V0idPr0xy122
 - 👀 I’m interested in coding (who could have guessed)
 - 🌱 I’m currently learning Python
 - 📫 How to reach me: Pls don't try but if u rlly wnat to - my e-mail
